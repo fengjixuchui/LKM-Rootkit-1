@@ -2,4 +2,4 @@
 
 Educative Material.
 
-I do not responsable for the bad use.
+I do not responsible for the bad use.
